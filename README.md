@@ -3,7 +3,6 @@
 > Expected **permanently** exposable data
 
 Use (Text Encryption/Decryption)[https://www.gillmeister-software.com/online-tools/text/encrypt-decrypt-text.aspx]
-https://www.gillmeister-software.com/online-tools/text/encrypt-decrypt-text.aspx
 ---
 
 Service learning:
