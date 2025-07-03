@@ -1,4 +1,4 @@
-# Public_TMP
+# Temporary Public Information
 > [!IMPORTANT]
 > Expected **permanently** exposable data
 
