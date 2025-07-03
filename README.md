@@ -5,4 +5,8 @@
 Use https://www.devglan.com/online-tools/text-encryption-decryption
 ---
 
-Service learning https://docs.google.com/presentation/d/1GXKvVXB0PQwSIQjPI8u3M9YMDEPjl8nUPmfIx6t0qYA/edit?slide=id.g36c646c961c_5_50&pli=1#slide=id.g36c646c961c_5_50
+Service learning:
+pacam3oIt+Ls5eFUFqU3Z/bTHurMx705tLwEP0LCIVO4IP2cDOM3KPhNCfQ7OfXovGe/7LriXi/XiySIbfBd+vv0llm8oXp4/OmD9x+UVeemQoCsNfxrHI94iF9OMaYriUCQ8T8FHwlL0UnFISMGtUMtgwCC/Yx71SAVEZRfRJuMFQmlEU/j2vSHBfGGaDNd2c2VjwWAMGCVl0kOVbU2WYWg+TK5P5Vv6TbJkwcu0Xg=
+
+sus plastic
+https://www.youtube.com/watch?v=jWMmdals-Z4
