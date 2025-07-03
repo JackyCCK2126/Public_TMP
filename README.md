@@ -2,7 +2,7 @@
 > [!IMPORTANT]
 > Expected **permanently** exposable data
 
-Use (Text Encryption/Decryption)[https://www.gillmeister-software.com/online-tools/text/encrypt-decrypt-text.aspx]
+Use [Text Encryption/Decryption](https://www.gillmeister-software.com/online-tools/text/encrypt-decrypt-text.aspx)
 ---
 
 Service learning:
